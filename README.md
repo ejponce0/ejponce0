@@ -1,6 +1,6 @@
 # 👀 About Me:
 
-- 🧑‍🎓 Currently trying to get my degree ASAP.
+Physics Engineer.
 
 ## 🌐 Networks
 
